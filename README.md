@@ -1,3 +1,13 @@
+# Всем привет
+
+🌍
+*[English] ∙ [Русский]
+
+#### Join the study of the sphere of WEB 3
+
+
+
+
 - 👋 Hi, I’m @testavy
 - 👀 I’m interested in WEB3
 - 🌱 I’m currently learning in comunity Soloweb
